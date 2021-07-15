@@ -1,1 +1,0 @@
-# oscarcapital Landing page
